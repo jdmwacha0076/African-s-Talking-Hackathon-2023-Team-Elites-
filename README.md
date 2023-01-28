@@ -28,10 +28,10 @@ Hussein Said - Github Account
 
 Hassan Yange - Github Account https://github.com/hassanyange
 
-Joseph Mwacha
+Joseph Mwacha -Github Account https://github.com/jdmwacha0076/
 
-Mbunji Mo
+Mbunji Mo - Github Account
 
-Glory Tarimo
+Glory Tarimo - Github Account
 
-Bidaus Bisendo
+Bidaus Bisendo - Github Account
