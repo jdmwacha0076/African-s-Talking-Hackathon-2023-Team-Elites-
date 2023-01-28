@@ -24,7 +24,7 @@ The platform can also be monetized by charging businesses or organizations for a
 
 
 ## Team Members
-Hussein Said - Github Account  
+Hussein Said - Github Account  https://github.com/Hussein2040
 
 Hassan Yange - Github Account https://github.com/hassanyange
 
